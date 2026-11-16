@@ -1,0 +1,1 @@
+# AMDVSINTEL
